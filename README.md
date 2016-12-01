@@ -1,1 +1,1 @@
-www.batikanjogja.me
+mygithubpage
